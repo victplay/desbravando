@@ -9,3 +9,6 @@ https://www.canva.com/design/DAG6jSOHHPI/7prAVcIUiWq1h17mvJ6_hQ/edit?utm_content
 
 # Link do modelo conceitual
 https://app.brmodeloweb.com/#!/publicview/6931d980eb8df909a2698b78
+qqqqa
+a
+aaa
